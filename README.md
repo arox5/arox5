@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @arox5
+- 👀 I’m interested in ... ✨ different things 
+- 🌱 I’m currently learning ... ✨ new things 
+- 💞️ I’m looking to collaborate on ... ✨ who knows 
+- 📫 How to reach me ... ✨ here 
